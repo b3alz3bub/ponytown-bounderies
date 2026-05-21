@@ -7,4 +7,6 @@
 
 4. ) I do not engage in roleplays, so if you ask/force me i will kindly ask you No, so please respect that
 
+5. ) I AM A MINOR! 18+ or older people DNI respectfully, unless were already friends and chill its fine
+
 WIP bc i have moreuhhhh
