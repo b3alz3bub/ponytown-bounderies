@@ -9,7 +9,7 @@
 
 5. ) I do not engage in roleplays, so if you ask/force me i will kindly ask you No, so please respect that
 
-6. ) I AM A MINOR! 18+ or older people DNI respectfully, unless were already friends and chill its fine
+6. ) Would i say this is contreversial? 18-20+ people can interact with me, BUT please dont be weird or act like the "mature one"; like trying to always be their in certain conversations, thinking you always got good advice, babying me, forcing me to call you dad/daddy, mom/mommy or online parent and other stuff thats weird with a minor. DNI 30+ or older people, you guys should really be in the 18+ server
 
 7. ) DNIUPAF (Do Not Interact Unless Party And Friends) this looks weird but i made that shit up, Its the same as DNIUF. This is stupid but im putting it here anyway
 
