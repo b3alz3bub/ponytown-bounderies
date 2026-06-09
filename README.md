@@ -13,4 +13,4 @@
 
 7. ) DNIUPAF (Do Not Interact Unless Party And Friends) this looks weird but i made that shit up, Its the same as DNIUF. This is stupid but im putting it here anyway
 
-WIP bc i have moreuhhhh
+8. ) Proshippers, darkshippers, supporters of them with "minors dni" in a fucking SAFE SERVER is stupid, and all of you in the portree are usually adults which is weird because you guys are suppose to know better, but i guess not. Healthy coping machanism or not, please do not interact with me and please find a better way to cope.
