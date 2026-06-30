@@ -11,6 +11,4 @@
 
 6. ) Would i say this is contreversial? 18-20+ people can interact with me, BUT please dont be weird or act like the "mature one"; like trying to always be their in certain conversations, thinking you always got good advice, babying me, forcing me to call you dad/daddy, mom/mommy or online parent and other stuff thats weird with a minor. DNI 30+ or older people, you guys should really be in the 18+ server
 
-7. ) DNIUPAF (Do Not Interact Unless Party And Friends) this looks weird but i made that shit up, Its the same as DNIUF. This is stupid but im putting it here anyway
-
-8. ) Proshippers, darkshippers, radqueers and supporters of them with "minors dni" in a fucking SAFE SERVER is stupid, and all of you in the portree are usually adults which is weird because you guys are suppose to know better, but i guess not. Healthy coping machanism or not, please do not interact with me and please find a better way to cope.
+7. ) Proshippers, darkshippers, radqueers and supporters of them with "minors dni" in a fucking SAFE SERVER is stupid, and all of you in the portree are usually adults which is weird because you guys are suppose to know better, but i guess not. Healthy coping machanism or not, please do not interact with me and please find a better way to cope.
