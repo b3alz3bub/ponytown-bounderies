@@ -11,4 +11,7 @@
 
 6. ) Would i say this is contreversial? 18-20+ people can interact with me, BUT please dont be weird or act like the "mature one"; like trying to always be their in certain conversations, thinking you always got good advice, babying me, forcing me to call you dad/daddy, mom/mommy or online parent and other stuff thats weird with a minor. DNI 30+ or older people, you guys should really be in the 18+ server
 
-7. ) Proshippers, darkshippers, radqueers and supporters of them with "minors dni" in a fucking SAFE SERVER is stupid, and all of you in the portree are usually adults which is weird because you guys are suppose to know better, but i guess not. Healthy coping machanism or not, please do not interact with me and please find a better way to cope.
+7. ) Proshippers, darkshippers, radqueers and supporters of them with "minors dni" in a fucking SAFE SERVER is stupid, and all of you in the portree are usually adults which is weird because you guys are suppose to know better, but i guess not. Healthy coping machanism or not, please do not interact with me and please find a better way to cope
+
+8. ) I dont care if ive experienced this recentley but it happens to me almost EVERYTIME. If you're my "ex-friend" or if YOU unfriended me, i dont care on how it ended anymore and i hope youre doing okay, but please i want all of you to stop "checking up on me" im over it and ive moved on, forget all the little things about me. If im over our friendship that im sure you are too. The amount of old "ex-friends" ive seen viewing my profile is getting annoying even if i dont see you. ive already blocked all of your alt accounts, if youre reading this yes im doing okay, okay? get out of here and live happily. Same goes for your other friends i used to talk to. 
+
